@@ -6,5 +6,5 @@
 
 💞️ I’m looking to collaborate on exciting Salesforce projects where I can contribute my expertise and collaborate with other talented professionals.
 
-📫 Feel free to reach me through connect with me on LinkedIn at [www.linkedin.com/in/nicolashamez-dev](https://fr.linkedin.com/in/nicolas-hamez-588507a6). I'm always open to networking and discussing potential opportunities. Let's connect and make an impact together!
+📫 Feel free to reach me through connect with me on LinkedIn at [www.linkedin.com/in/nicolashamez](https://fr.linkedin.com/in/nicolas-hamez-588507a6). I'm always open to networking and discussing potential opportunities. Let's connect and make an impact together!
 
